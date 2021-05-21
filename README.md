@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Spacealien1313
-Coder, investor, photograpger, composer, musician, and amateur scientist
+Coder, investor, photograpger, composer, musician, and amateur scientist.
 Is a hotdog a sandwich?
 - 📫 You can get in touch with me at daniel.kalan@outlook.com
 <!---
